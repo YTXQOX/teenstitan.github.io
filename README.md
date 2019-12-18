@@ -7,7 +7,7 @@
 
 
 ## 火影忍者手游
-## 卖号啦，卖号啦，卖号啦！！！！
+### 卖号啦，卖号啦，卖号啦！！！！
 
 
 
@@ -27,9 +27,6 @@
 ## 图片一览（20张）
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0001.jpg)
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0002.jpg)
-![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0003.jpg)
-![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0004.jpg)
-![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0005.jpg)
 
 
 
@@ -43,7 +40,7 @@
 ### 5. 后续需要微信活动可随时联系我。
 ### 6. 诚心交易者，接受议价。
 ### 7. 非诚勿扰！！
-   
+
   
   
   
