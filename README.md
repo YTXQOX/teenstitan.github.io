@@ -4,7 +4,7 @@
 
 
 # **火影忍者手游：**
-### 卖号啦，卖号啦，卖号啦！！！！
+### 卖号啦，卖号啦，卖号啦！！！！     
 
 
 
@@ -16,32 +16,51 @@
 ### 战力：1000+（千万+）
 ### 金币：210000（21万）
 ### 高级招募券及限定招募券：60+(张)，16(张)
-### 其他资源：海量
+### 其他资源：海量     
      
    
     
      
 # **图片一览（20张）**
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0001.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0002.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0003.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0004.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0005.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0006.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0007.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0008.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0009.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0010.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0011.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0012.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0013.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0014.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0015.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0016.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0017.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0018.jpg)
+
 ![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0019.jpg)
-![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0020.jpg)
+
+![image](https://github.com/TEENSTITAN/teenstitan.github.io/blob/master/S20191218-0020.jpg)     
 
    
    
@@ -54,7 +73,7 @@
 ### 4.  游戏组织/活动/聊天/微信群在交易完成时拉入群；
 ### 5.  后续需要微信活动可随时联系我。
 ### 6.  诚心交易者，接受议价。
-### 7.  非诚勿扰！！
+### 7.  非诚勿扰！！      
 
      
   
@@ -62,7 +81,7 @@
 # **联系方式：**
 #### 微信：GNOxiONG
 #### QQ：1507739391
-#### 添加好友请务必备注：2000贝利
+#### 添加好友请务必备注：2000贝利     
 
 
 
